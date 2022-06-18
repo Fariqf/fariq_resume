@@ -1,1 +1,0 @@
-# fariq_resume
